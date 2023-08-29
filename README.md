@@ -1,4 +1,4 @@
-#this is a page about our dear cat 
+this is a page about our dear cat 
 _her name is kyco she is a female_
 i will show you a photo of her
 she is a female calico cat.
