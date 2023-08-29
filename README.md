@@ -7,3 +7,4 @@ she was sick four days before.At that day my family wat out on a holiday.
 she was very ill,her tempeture was very hot.
                                                                                                                                                                                                                             
  image                                                                      
+!![Uploading WhatsApp Image 2023-08-22 at 6.41.20 PM.jpeg…]()
