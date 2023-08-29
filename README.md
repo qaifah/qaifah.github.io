@@ -5,4 +5,5 @@ she is a female calico cat.
 she died on 13th august
 she was sick four days before.At that day my family wat out on a holiday.
 she was very ill,her tempeture was very hot.
-                                                                                                                                                                                                                          ##image                                                                      
+                                                                                                                                                                                                                            
+ image                                                                      
